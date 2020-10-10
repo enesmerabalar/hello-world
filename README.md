@@ -1,1 +1,1 @@
-# hello-world
+Bilgisayarımda warband bile kasıyor :(
